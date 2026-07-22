@@ -1,2 +1,0 @@
-# Jakmania-Ragunan
-DATA ANGGOTA JAKMANIA RAGUNAN
